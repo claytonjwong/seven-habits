@@ -1,5 +1,12 @@
 # The 7 Habits of Highly Effective People
 
+---
+
+**ISBN-10:** 1982137274
+**ISBN-13:** 978-1982137274
+
+---
+
 True greatness will be achieved through the abundant mind that works selflessly - *with* mutual respect, *for* mutual benefit.
 
 ## Common Human Challenges
