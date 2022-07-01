@@ -120,7 +120,7 @@ Principles are guidlines for human conduct that are proven to have enduring, per
 
 ⭐️ Admission of ignorance is often the first step in our education.
 
-If all of life, there are sequential stages of growth and development.  Each step is important and each one takes times.  No step can be skipped.  It is simply impossible to violate, ignore, or shortcut this development process.  It is contrary to nature, and attempting to seek such a shortcut only results in disappointment and frustration.
+In all of life, there are sequential stages of growth and development.  Each step is important and each one takes times.  No step can be skipped.  It is simply impossible to violate, ignore, or shortcut this development process.  It is contrary to nature, and attempting to seek such a shortcut only results in disappointment and frustration.
 
 To relate effectively with others, we must learn to listen.  Listening involves patience, openness, and the desire to understand.
 
