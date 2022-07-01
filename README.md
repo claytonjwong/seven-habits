@@ -81,7 +81,7 @@ We each have many "maps" in our minds which can be divided into 2 groups:
 1. We way things *are* (or *realities*)
 2. The way things *should be* (or *values*)
 
-* We interpret everything we experience through these maps, but we seldom question our their accuracy; we are usually unaware that we have them.  We *assume* that the way we see things is the way they really are or the way they should be.
+* We interpret everything we experience through these maps, but we seldom question their accuracy; we are usually unaware that we have them.  We *assume* that the way we see things is the way they really are or the way they should be.
 * The way we see things is the source of the way we think and act
 
 ⭐️ Two people can see the same thing, disagree, and yet both be right.  It's not logical, its psychological.
