@@ -199,3 +199,23 @@ True effectiveness is a function of two things: what is produced (the golden egg
   * PC work is treating employees as volunteers; they volunteer their best parts - their hearts and minds.
 
 P/PC balance is the very essence of effectiveness.
+
+### What You Can Expect
+
+Each of us guards a "gate of change" that can only be opened from the inside.  If we decide to open our "gate of change" several positive things will happen.  Our growth will be *evolutionary*, but the net effect will be *revolutionary*.
+* increased self-confidence
+* know ourselves in a deeper more meaningful way
+  * our nature, deepest values, unique contribution capabilities
+  * as we live our values, our sense of identity, integrity, control, and inner-directedness will infuse us with both exhiliration and peace
+* define ourselves from within, rather than by other's opinions or comparisons to others
+  * we will find that we care less about what others think of us, and we will care more about what others think of themselves and their worlds, including their relationship with us.
+  * we will find it easier and more desirable to change because our core-values are immutable
+* replace old patterns of self-defeating behavior with new patterns of effectiveness, happiness, and trust-based relationships
+
+#### Be Patient With Ourselves
+
+Self-growth is tender; it's holy ground.  There's no greater investment.  Obviously it's *not* a quick fix.
+
+> That which we obtain too easily, we esteem too lightly
+>
+-[Thomas Paine](https://en.wikipedia.org/wiki/Thomas_Paine)
