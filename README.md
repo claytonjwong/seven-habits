@@ -144,3 +144,45 @@ To relate effectively with others, we must learn to listen.  Listening involves 
 -[Aristotle](https://en.wikipedia.org/wiki/Aristotle)
 
 Habits are powerful factors in our lives.  Because they are consistent, often unconscious patterns, they constantly, daily, express our character and product our effectiveness (or ineffectiveness).  Habits can be learned and unlearned; it involves a process and a tremendous commitment.  Breaking deeply embedded habitual tendencies such as procrastination, impatience, criticalness, or selfishness that violate basic principles of human effectiveness involves more than a little willpower and a few minor changes in our lives.  "Lift off" takes a tremendous effort.
+
+### "Habits" Defined
+
+We will define a habit as the intersection of knowledge, skill, and desire.  In order to make something a habit in our lives, we have to have all three.
+
+* **Knowledge** is the theoretical paradigm, the *what to do* and the *why to do it*
+* **Skill** is the *how to do it*
+* **Desire** is the motivation, the *want to do it*
+
+The being/seeing change is an upward process - being changing seeing, which in turn changes being, and so forth, as we move in an upward spiral of growth.  By working on knowledge, skill, and desire, we can break through to new levels of personal and interpersonal effectiveness as we break with old paradigms that may have been a source of pseudo-security for years.
+
+* **Happiness** can be defined as the fruit of the desire and ability to sacrafice what we want *now* for what we want *eventually*, ie. we can postpone instant gratification for long-term fulfillment.
+
+Reaching our full physical maturity does *not* necessarily assure us of simultaneous emotional or mental maturity:
+
+* **Dependent** people need others to get what they want.
+  * the paradigm of *you*:
+    *  *you* take care of me,
+    *  *you* come through for me
+    *  *you* didn't come through for me
+    *  *you* are to blame for the results
+  * letting the weaknesses of others ruin our emotional lives
+  * feeling victimized by others and events outside our control
+* **Independent** people can get what they want through their own effort.
+  * the paradigm of *I*:
+    * *I* can do it
+    * *I* am responsible
+    * *I* am self-reliant
+    * *I* can choose
+  * allows us to act, rather than be acted upon
+  * frees us of the dependence on others and circumstances
+* **Interdependent** people combine their own efforts with the efforts of others to achieve their greatest success.
+  * the paradigm of *we*:
+    * *we* can do it
+    * *we* can cooperate
+    * *we* can combine our talents and abilities and create something greater together
+  * is a choice only independent people can make
+  * dependent people cannot choose to be interdependent because they don't have sufficient character to do it; they don't own enough of themselves
+
+We cannot invert the process of personal growth from dependence to independence to interdependence anymore than we can harvest a crop before we plant it.  It is an inside-out process and no steps can be skipped.  That is why private victories precede public victories.
+
+Continuous improvement creates an upward spiral of growth that lifts us to new levels of understanding and living each of the 7 habits as we come around to them on a progressively higher plane.
