@@ -187,7 +187,7 @@ We cannot invert the process of personal growth from dependence to independence 
 
 Continuous improvement creates an upward spiral of growth that lifts us to new levels of understanding and living each of the 7 habits as we come around to them on a progressively higher plane.
 
-## "Effectiveness" Defined
+### "Effectiveness" Defined
 
 The 7 habits are habits of *effectiveness*.  They become the basis of a person's character, creating an empowering center of correct maps from which an individual can effectively solve problems, maximize opportunities, and continually learn and integrate other principles in an upward spiral of growth.
 
