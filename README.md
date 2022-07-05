@@ -135,3 +135,12 @@ To relate effectively with others, we must learn to listen.  Listening involves 
 > We must not cease from exploration and the end of all our exploring will be to arrive where we began and to know the place for the first time.
 >
 -[T.S. Elliot](https://en.wikipedia.org/wiki/T._S._Eliot)
+
+
+## The 7 Habits: An Overview
+
+> We are what we repeatedly do.  Excellence, then, is not an act, but a habit.
+>
+-[Aristotle](https://en.wikipedia.org/wiki/Aristotle)
+
+Habits are powerful factors in our lives.  Because they are consistent, often unconscious patterns, they constantly, daily, express our character and product our effectiveness (or ineffectiveness).  Habits can be learned and unlearned; it involves a process and a tremendous commitment.  Breaking deeply embedded habitual tendencies such as procrastination, impatience, criticalness, or selfishness that violate basic principles of human effectiveness involves more than a little willpower and a few minor changes in our lives.  "Lift off" takes a tremendous effort.
