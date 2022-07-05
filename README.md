@@ -186,3 +186,16 @@ Reaching our full physical maturity does *not* necessarily assure us of simultan
 We cannot invert the process of personal growth from dependence to independence to interdependence anymore than we can harvest a crop before we plant it.  It is an inside-out process and no steps can be skipped.  That is why private victories precede public victories.
 
 Continuous improvement creates an upward spiral of growth that lifts us to new levels of understanding and living each of the 7 habits as we come around to them on a progressively higher plane.
+
+## "Effectiveness" Defined
+
+The 7 habits are habits of *effectiveness*.  They become the basis of a person's character, creating an empowering center of correct maps from which an individual can effectively solve problems, maximize opportunities, and continually learn and integrate other principles in an upward spiral of growth.
+
+True effectiveness is a function of two things: what is produced (the golden eggs) and the producing asset or capacity to produce (the goose).  Effectiveness lies in the P/PC balance:
+* **P**roduction: the desired results (the golden eggs)
+* **P**roduction **C**apability: the ability or asset (that produces the golden eggs)
+  * Our most important financial asset is our own capacity to earn.  If we don't continually invest in improving our own PC, we severely limit our options.  We're locked into our present situation, running scared of our organization or our boss's opinion of us, economically dependent and defensive.
+  * Always treat your employees exactly as you want them to treat your best customers.  We can buy a person's hand, but we can't buy their heart.  Their heart is where their enthusiasm and loyalty reside.  We can buy their back, but we can't buy their brain.  Their brain is their source of creativity, ingenuity, and resourcefulness.
+  * PC work is treating employees as volunteers; they volunteer their best parts - their hearts and minds.
+
+P/PC balance is the very essence of effectiveness.
