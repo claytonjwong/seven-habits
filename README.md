@@ -219,3 +219,50 @@ Self-growth is tender; it's holy ground.  There's no greater investment.  Obviou
 > That which we obtain too easily, we esteem too lightly
 >
 -[Thomas Paine](https://en.wikipedia.org/wiki/Thomas_Paine)
+
+
+## Habit 1: Be Proactive
+
+Self-awareness is a unique human thought process which allows us to make and break our habits.  Until we take into consideration how we see ourselves (and how we see others) into account, we are unable to understand how others see and feel about themselves and their world.  Unaware, we cast our intentions and perceptions onto other's behavior and consider ourselves objective.
+
+🙁 **Reactive people** build their emotional lives around the behavior of others, empowering the weaknesses of others to control them.
+  * The language of reactive people absolves them of responsibility, ie. they prefer to transfer responsibility (they are *not* responsible since they are *not* able to choose their response)
+    * That's me, that's just the way I am
+    * I can't, if only, etc.
+  * A serious problem with reactive language is that it becomes a self-fulfilling prophecy
+  * In the great literature of all progressive societies, love is a verb; reactive people make it a feeling
+  * Focus their efforts in the Circle of Concern (empowering the things within it to control them)
+    * negative
+    * weaknesses of others
+    * problems in their environment
+    * victimization
+    * change others outside-in
+  * their criticism is worse than the behavior they want to correct
+  * make excuses for mistakes and never learn or improve
+
+🙂 **Proactive people** are driven by values.  It is our willing permission, our consent to what happens to us, that hurts us far more than what happens to us in the first place.
+  * I am what I am today because of the choices I made yesterday
+  * Our most difficult experiences become the crucibles that forge our character and develop the internal powers, the freedom to handle difficult circumstances in the future and to inspire others to do so as well
+  * What matters most is how we *respond* to what we experience in life
+  * People who end up with good jobs are the proactive ones who are solutions to problems, not problems themselves, who seize the initiative to do whatever is necessary, consistent with correct principles, to get the job done.
+  * Love is a vlue that is actualized through loving actions; proactive people subordinate feelings to values
+  * Focus their efforts on the Circle of Influence (empowering themselves to work on things they can do something about)
+    * positive
+    * strengths of themselves and others
+    * powerfully affect circumstances by choosing responses to those circumstances
+    * change self inside-out
+  * acknowledge mistakes, correct and learn to improve
+
+There are 3 widely accepted social maps based on stimulus/response theory, ie. we are conditioned to respond in a particular manner given a particular stimulus:
+1. **genetic:** it's in our DNA, we're born like this
+2. **psychic:** our childhood experience made us this way
+3. **environmental:** our boss, significant other, etc. is responsible for our situation
+
+However, these maps are reactive models and do *not* take into account our uniquely human ability to choose our response, ie. between stimulus and response is our freedom and power to choose that response.
+
+Other unique human traits:
+1. **imagination:** abstract thinking to create possibilities outside present reality
+2. **conscience:** a deep inner awareness of right and wrong
+3. **independent will:** the ability to act based on our self-awareness, free of all other influences
+
+We are able to write new programs for ourselves which is disparate from our instincts and training.  As human beings we are responsible for our own lives.  Our behavior is a function of our decisions, not our conditions.  We have the initiative and responsibility to make things happen.
