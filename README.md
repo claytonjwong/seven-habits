@@ -245,7 +245,7 @@ Self-awareness is a unique human thought process which allows us to make and bre
   * Our most difficult experiences become the crucibles that forge our character and develop the internal powers, the freedom to handle difficult circumstances in the future and to inspire others to do so as well
   * What matters most is how we *respond* to what we experience in life
   * People who end up with good jobs are the proactive ones who are solutions to problems, not problems themselves, who seize the initiative to do whatever is necessary, consistent with correct principles, to get the job done.
-  * Love is a vlue that is actualized through loving actions; proactive people subordinate feelings to values
+  * Love is a value that is actualized through loving actions; proactive people subordinate feelings to values
   * Focus their efforts on the Circle of Influence (empowering themselves to work on things they can do something about)
     * positive
     * strengths of themselves and others
@@ -265,4 +265,4 @@ Other unique human traits:
 2. **conscience:** a deep inner awareness of right and wrong
 3. **independent will:** the ability to act based on our self-awareness, free of all other influences
 
-We are able to write new programs for ourselves which is disparate from our instincts and training.  As human beings we are responsible for our own lives.  Our behavior is a function of our decisions, not our conditions.  We have the initiative and responsibility to make things happen.
+We are able to write new programs for ourselves which are disparate from our instincts and training.  As human beings we are responsible for our own lives.  Our behavior is a function of our decisions, not our conditions.  We have the initiative and responsibility to make things happen.
