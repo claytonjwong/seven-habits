@@ -71,7 +71,7 @@ If we want to change a situation, we first have to change ourselves; and to chan
 
 What we *are* communicates far more eloquently than anything we *say* or *do*.
 
-There are basic principles of effective living, and people can only experience true success and enduring hapiness as they learn and integrate these principles into their basic character.
+There are basic principles of effective living, and people can only experience true success and enduring happiness as they learn and integrate these principles into their basic character.
 
 #### Paying the Piper
 
