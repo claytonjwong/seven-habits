@@ -266,3 +266,165 @@ Other unique human traits:
 3. **independent will:** the ability to act based on our self-awareness, free of all other influences
 
 We are able to write new programs for ourselves which are disparate from our instincts and training.  As human beings we are responsible for our own lives.  Our behavior is a function of our decisions, not our conditions.  We have the initiative and responsibility to make things happen.
+
+
+## Habit 2: Begin with the End in Mind
+
+> What lies behind us and what lies before us are tiny matters compared to what lies within us.
+>
+-[Oliver Wendell Holmes](https://en.wikipedia.org/wiki/Oliver_Wendell_Holmes_Sr.)
+
+### What does it mean to "Begin with the End in Mind?"
+
+* Use the end-of-life as a perceptual reference point, ie. at the end of our life, what  matters to us?
+  * this helps us to proplerly utilize each day towards end-goals
+* Start with a clear understanding of our destination, to know where we're going so we can better understand where we are now and ensure each step we take is in the right direction
+
+#### Based on the Principle: All Things Are Created Twice**
+1. mental creation
+2. physical creation
+
+##### By Design or Default
+
+* If we don't develop our own self-awareness and become responsible for first creations, we empower other people and circumstances outside of Circle of Influence to shape much of our lives by default
+* Whether we are aware of it or not, whether we are in control of it or not, there is a first creation to every part of our lives.  We are either the second creation of our own proactive design, or we are the second creation of other people's agendas, of circumstances, or of past habits
+
+### Leadership and Management: The Two Creations
+
+1. Leadership is the first creation.  Leadership is *not* management; leadership must come first
+2. Management is the second creation.
+
+#### ⭐️ Management is doing things right.  Leadership is doing the right things.
+  * An inner compass always gives us direction
+  * Efficient management without effective leadership is like straightening deck chairs on the Titanic.  No management success can compensate for failure in leadership.  But leadership is hard because we're often caught in a management paradigm
+    * Parents are often trapped in the management paradigm: thinking of control, efficiency, and rules instead of direction, purpose, and family feeling
+
+### Rescripting: Becoming Your Own First Creator
+
+1. Through **imagination**, we can visualize the uncreated world of potential that lie within us
+2. Through **conscience**, we can come in contact with universal laws or principles with our singular talents and avenues of contribution, and with personal guidelines within which we can most effectively develop them
+3. Combined with **self-awareness**, these two endownments empower us to write our own script
+
+Because we already live with many scripts that have been handed to us, the process of writing our own script is actually more a process of "rescripting," or paradigm shifting -- of changing some of the basic paradigms that we already have.  As we recognize that ineffective scripts, the incorrect or incomplete paradigms within us, we can proactively begin to rescript ourselves.
+
+#### ⭐️ Real success is success with self.  It's not in having things, but in having mastery, having victory over self.
+
+* In developing our own self-awareness many of us discover ineffective scripts, deeply embedded habits that are totally unworthy of us, totally incongruent with the things we really value in life.  Habit 2 says we don't have to live with those scripts.  We are response-able to use our imagination and creativity to write new scripts that are more effective, more congruent with our deepest values and with the correct principles that give our values meaning.
+  * But we don't always see those values.  We get caught up in the thick of thin things.  What matters most gets buried under layers of pressing problems, immediate concerns, and outward behaviors.  We become reactive, and the way we interact with others every day often bears little resemblance of the way we deeply feel about them.
+* We can change.  We can live out our imagination instead of our memory.  We can tie ourselves to limitless future potential instead of limited past.  We can become our own first creators.
+  * Begin each day with our values which truly matter in mind.
+    * We can act with integrity
+    * We don't have to react to emotions or circumstances
+    * We can be proactive and value driven when our values are clearly in mind
+
+### Personal Mission Statement
+
+A personal mission statement based on correct principles becomes a standard of performance for ourselves.  It becomes a personal constitution, the basis for making major, life-directing decisions, the basis for making daily decisions in the midst of the circumstances and emotions that affect our lives.  It empowers individuals with the same timeless strength in the midst of change.
+
+**⭐️ The key to the ability to change is the changeless sense of who you are, what you are about and what you value.**
+
+🙂 With a mission statement, we can flow with changes.  We don't need prejudgements or prejudices.  We don't need to figure out everything else in life, to stereotype and categorize everything and everybody in order to accomodate reality.
+
+🙁 Our personal environment is also changing at an ever-increasing pace.  Such rapid change burns out a large number of people who feel they can hardly handle it, can hardly cope with life.  They become reactive and essentially give up, hoping that things that happens to them will be good.
+
+**⭐️ Many so-called mental and emotional illnesses are really symptoms of an underlying sense of meaninglessness or emptiness**
+
+### At The Center
+
+Whatever is at the center of our life will be the source of our security, guidance, wisdom, and power.
+
+**🙁 Incorrect Centers:**
+* Spouse
+  * strong emotional dependence
+* Family
+  * ironically destroys the very elements necessary for family success
+* Money
+  * often put aside family or other priorities
+* Work
+  * drive self to product at the sacrifice of health, relationships, and other important areas of life
+  * fundamental identity comes from work
+* Possession
+  * sense of security lies in reputation or in the things acquired, and life is in a constant state fluctuations and threats
+    * possessions may be lost, stolen, damaged, devalued, etc.
+    * vicissitudes of self-worth when protecting assets, properties, position, reputation, etc.
+* Pleasure
+  * offers no deep, lasting satisfaction or sense of fulfillment
+  * leisure time via television, video games, etc. allows us to continually take the course of least restistance which gradually wastes our lives
+    * our capacities stay dormant
+    * talent remains undeveloped
+    * mind and spirit become lethargic
+    * the heart is unfulfilled
+* Friend/Enemy
+  * emotional dependence on one individual, escalating need/conflict spiral, negative interactions, etc.
+  * when someone feels they have been unjustly dealt with by an emotionally or socially significant person, it is very easy for them to become preoccupied with the injustice and make the other person the center of their life; rather than proactively leading their own life, the enemy-centered person is counterdependently reacting to the behavior and attitudes of a perceived enemy.
+    * no intrinsic security: feelings of self-worth are volatile, a function of the emotional state of behavior of other people
+    * no power: other people are pulling the strings
+* Church
+  * image or appearance are dominant considerations, leading to hypocrisy that undermines personal security and intrinsic worth
+  * live life in compartments: acting, thinking, and feeling in certain ways on Sundays and in disparate ways on all other days
+* Self
+  * selfishness generates minimal security, guidance, wisdom, or power
+
+**🙂 Principle Center:**
+
+* Correct principles never change, they are deep fundamental truths
+* The more we learn, the more clearly we can focus the lens through which we see the world
+  * Wisdom and guidance come from correct maps which enable us to clearly see where we want to go and how to get there
+    * Powerful living: self-aware, knowledgeable, proactive
+    * Unrestricted by the attitudes, behaviors, actions of others, circumstances, or environmental influences
+
+#### Natural Consequences of Principles
+
+* Positive consequences occur when we live in harmony with principles
+* Negative consequences occur when we ignore principles
+
+**⭐️ By centering our lives on timeless, unchanging principles, we create a fundamental paradigm of effective living.  It is the center that puts all other centers in perspecive.**
+
+Our paradigm is the source from which our attitudes are behaviors flow.  A paradigm is like a pair of glasses; if affects the way we see everything in life.  If we look at things through the paradigm of correct principles, what we see in life is dramatically different from what we see though any other centered paradigm.
+
+As principle centered people, we see things differently.  And because we see things differently, we think differently, we act differently.  Because we have a high degree of security, guidance, wisdom, and power that flows from a solid, unchanging core, we have the foundation of a highly proactive and highly effective life.
+
+### Writing and Using a Personal Mission Statement
+
+> Everyone has his own specific vocation or mission in life.  Therein he cannot be replaced, nor can his life be repeated.  Thus, everyone's task is as unique as is his specific opportunity to implement it.
+>
+-[Viktor Frankl](https://en.wikipedia.org/wiki/Viktor_Frankl)
+
+We *detect* rather than *invent* our missions in life.  Our conscience gives us an awareness of our own uniqueness and the singular contributions we can make.
+
+Personal responsibility, or proactivity, is fundamental to the first creation.  Until we accept the idea that we are responsible, that we are the programmer, we won't really invest in writing the program.  As proactive people, we can begin to give expression to what we want to be and to do in our lives.  We can write a personal mission statement, a personal constitution.  Our mission statement is the criterion by which we measure everything else in our lives.
+
+The process is as important as the product.  Writing or reviewing a mission statement changes us because it forces us to think through our priorities deeply, carefully, and aligns our behaviors with our beliefs.
+
+#### Use Our Whole Brain
+
+People tend to stay in the "comfort zone" of their dominant hemisphere and process every situation according to either a left- or right-brain preference, and we live primarily in a left-brain dominant world.  Many of us find it more difficult to tap into our right brain capacity.  We are capable of performing many different kinds of thought processes and we barely tap our potential.  As we become aware of its different capacities, we can consciously use our minds to meet specific needs in more effective ways.
+
+##### Two Ways to Tap into the Right-Brain
+
+*Expand Perspective*
+* sometimes we are knocked out of our left-brain environment and thought patterns and into the right-brain by an unplanned experience; extreme adversity can cause us to stand back, look at our lives, and ask ourselves some hard questions: "What really matters?  Why am I doing what I'm doing?"
+* if we are proactive, we don't have to wait for a horrible circumstance to change, we can consciously create our own
+  * write our own eulogy
+  * visualize our own retirement party
+  * visualize our 25<sup>th</sup> or 50<sup>th</sup> wedding anniversary
+
+*Visualization and Affirmation*
+* personal leadership is *not* a singular experience
+  * it is an ongoing process of keeping our vision and values before us and aligning our life to be congruent with those most important things which matter most to us
+  * a good affirmation example:
+    * "it is deeply satisfying (emotional) that I (personal) respond (present tense) with wisdom, love, firmness, and self-control (positive) when my children misbehave"
+  * we can write the program, write the script, in harmony with our values and personal mission statement
+    * if we do this, day after day, our behaviors will change; instead of living out the scripts given to us by our parents, society, genetics, environment, etc., we will be living out the script we have written from our own self-selected value system
+
+⭐️ World-class athletes and other peak performers are visualizers.  They see it, feel it, experience it before actually doing it.  They begin with the end in mind.  Our creative visual right-brain is one of our most important assets, both in creating our personal mission statement and in integrating it into our life.
+* in effective personal leadership, visualization and affirmation techniques emerge naturally out of a foundation of well thought through purposes and principles that become the center of a person's life
+* the higher use of imagination is in harmony with the use of conscience to transcend self and create a life of contribution based on unique purpose and on the principles that govern interdependent reality
+
+##### Identifiying Roles and Goals
+
+The logical/verbal left-brain becomes important also as we attempt to capture our right-brain images, feelings, and pictures.  Writing is a kind of psycho-neural muscular activity which helps bridge and integrate the conscious and subconscious minds.  Writing distills, crystallizes, and clarifies thought and helps break the whole into parts.
+
+Writing our mission in terms of important roles in our life provides balance and harmony.  After we identify our various roles, we can think about the long-term goals we want to accomplish in each of those roles.
+
+An effective goal focuses primarily on results rather than activity.  It gives meaning and purpose to all we do: we are proactively in charge of our lives and proplerly utilizing each day to fulfill our personal mission statement.
