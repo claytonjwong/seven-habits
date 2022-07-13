@@ -91,7 +91,7 @@ We each have many "maps" in our minds which can be divided into 2 groups:
 * We interpret everything we experience through these maps, but we seldom question their accuracy; we are usually unaware that we have them.  We *assume* that the way we see things is the way they really are or the way they should be.
 * The way we see things is the source of the way we think and act
 
-⭐️ Two people can see the same thing, disagree, and yet both be right.  It's not logical, its psychological.
+⭐️ Two people can see the same thing, disagree, and yet both be right.  It's *not* logical, its psychological.
 
 * To try to change outward attitudes and behaviors does very little good in the long run if we fail to examine the basic paradigms from which those attitudes and behaviors flow.
 * Each of us thinks we see things as they are, that we are *objective*.  But this is not the case.  We see the world, not as *it is*, but as *we are* (or as we are conditioned to see it).
