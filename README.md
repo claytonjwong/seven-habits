@@ -428,3 +428,72 @@ The logical/verbal left-brain becomes important also as we attempt to capture ou
 Writing our mission in terms of important roles in our life provides balance and harmony.  After we identify our various roles, we can think about the long-term goals we want to accomplish in each of those roles.
 
 An effective goal focuses primarily on results rather than activity.  It gives meaning and purpose to all we do: we are proactively in charge of our lives and proplerly utilizing each day to fulfill our personal mission statement.
+
+
+## Habit 3: Put First Things First
+
+> Things which matter most must never be at the mercy of things which matter least.
+>
+-[Goethe](https://en.wikipedia.org/wiki/Johann_Wolfgang_von_Goethe)
+
+Habit 3 is the instantiation of Habit 2:
+
+* Habit 1: we are the creator and in charge of our lives
+  * Via unique human endowments: imagination, conscience, independent will, and self-awareness
+  * "That's an unhealthy program I've been given from my childhood, from my social mirror.  I don't like that ineffective script.  I can change."
+* Habit 2: is the first creation, a mental ability to imagine and see our potential with our minds what we cannot presently see with our eyes
+  * a deep contract with our basic paradigms and values and the vision of what we can become
+* Habit 3: is the second creation, the physical creation.
+  * The fulfillment, actualization, and natural emergence of Habits 1 + 2
+  * Habits 1 + 2 are prerequisites to Habit 3
+  * We can be come principle-centered day-in and day-out, moment-by-moment, by living Habit 3, by practicing effective self-management.
+
+Management is clearly different from leadership:
+* Management via the left-brain: breaking down, analysis, sequencing, specific application
+* Leadership via the right-brain: more of an art based on philosophy
+
+Effective management is *putting first things first.*  If we are effective managers of ourselves, then our discipline comes from within; it is a function of our independent will.  We are a disciple, a follower of our own deep values and their source.  And we have the will, the integrity, to subordinate our feelings, our impulses and moods to those values.
+
+### The Common Denominator of Success
+
+The successful person had the habit of doing the things failures don't like to do.  They don't like doing them either necessarily.  But their disliking is subordinated to the strength of their purpose.
+* That subordination requires a purpose, a mission (Habit 2)
+* It also requires independent will, the power to do something when we don't want to do it
+
+Rather than focusing on *things* and *time*, fourth generation expectations focus on preserving and enhancing *relationships* and on accomplishing *results* -- in short, on maintaining the P/PC balance.
+
+### Quadrant II
+
+Effective people are not problem-minded.  They feed opportunities and starve problems.  They think preventatively.  They have a genuine Quadrant I crises and emergencies that require their immediate attention, but the number is comparatively small.  They keep P and PC in balance by focusing on the important, but not urgent, high-leverage capacity-building activities of Quadrant II.
+
+### What It Takes to Say "No"
+
+We have to be proactive to work on Quadrant II because Quadrant I and III work on us.  To say "yes" to important Quadrant II priorities, we have ot learn to say "no" to other activities, sometimes apparently urgent things.
+
+The enemy of the "best" is often the "good."  Even when the urgent is good, the good can keep us from our best, keep us from our unique contribution, if we let it.
+
+We say "yes" or "no" to things daily, usually many times a day.  A center of correct principles and a focus on our personal mission empowers us with wisdom to make those judgements effectively.
+
+Many people recognize the value of Quadrant II activies in their lives, but lack a principle center and personal mission statement, they don't have the necessary foundation to sustain their efforts.  Their independent will alone cannot effectively discipline them again their center.
+
+Management follows leadership.  The way we spend our time is the result of the way we see our time and priorities.
+
+### Living It: Engage!
+
+"Run the program" and/or "Live the program."
+* primarily a function of our independent will, self-discipline, integrity, and commitment
+
+As we go through our week, there will undoubtedly be times when our integrity will be placed on the line.  Our principle center, self-awareness, and conscience can provide a high degree of intrinsic security, guidance, and wisdom to empower us to use our independent will and maintain integrity to the truly important.
+
+### Effectiveness with People, Efficiency with Things
+
+Frustration is a function of our expectations, and our expectations are often a reflection of the social mirror rather than our own values and priorities.  Habit 2 allows our higher values to drive us to subordinate our schedule to them.  We can adapt and be flexible: *with people, fast is slow, and slow is fast*.  People are more important than things.
+
+Trust is the highest form of human motiviation.  It brings out the very best in people.  But it takes time and patience, and it doesn't preclude the necessity to train and develop people so their competency can rise to the level of that trust.  Ultimately more work will get done in much less time.  But that takes the internal capacity to way to manage/delegate, not just produce.  The focus is on effectiveness, not efficiency.
+
+⭐️ Certainly we can clean up that room better than a child, but the key is that we want to empower the child to do it.  It takes time.  We have to get involved in the training and development.  It takes time, but how valuable that time is downstream!  It saves us so much in the long run.
+
+Effective delegation is perhaps the best indicator of effective management simply because it is so basic to both personal and organizational growth.
+
+The key to effective management of self is in the Quadrant II paradigm that empowers us to see through the lens of importance rather than urgency.
+
