@@ -497,3 +497,69 @@ Effective delegation is perhaps the best indicator of effective management simpl
 
 The key to effective management of self is in the Quadrant II paradigm that empowers us to see through the lens of importance rather than urgency.
 
+
+## Paradigms of Interdependence
+
+> There can be no friendship without confidence, and no confidence without integrity.
+>
+-[Samuel Johnson](https://en.wikipedia.org/wiki/Samuel_Johnson)
+
+**⭐️ The most important ingredient we put into any relationship is not what we say or what we do, but what we are.**
+* We cannot be successful with other people if we haven't paid the price of success with ourselves.  Self-mastery and self-discipline are the foundation of good relationships with others.  We have to like ourselves before we can like others, but if we don't know ourself, or we don't control ourself, if we don't have mastery over ourself, it is very hard to like ourselves (except in some short-term, psych-up, superficial way).
+* Unless we are willing to achieve real independence, it's foolish to try to develop human relations skills.  We might try.  We might even have some degree of success when the sun is shining.  But when the difficult times come (and they will), we won't have the foundation to keep things together.
+* The techniques and skills that really make a difference in human interaction are the ones that almost naturally flow from a truly independent character.
+
+🙁 We often live for years with the chronic pain of our lack of vision, leadership or management in our personal lives.  Because the pain is chronic, we get used to it, we learn to live with it.
+
+### The Emotional Bank Account
+
+🙂 When the trust account is high, communication is easy, instant, and effective.
+
+* Probably the most important deposit we can make would be to just listen, without judging or preaching or reading your own autobiography into what is being said.  Just listen and seek to understand.  Let others feel our concerns for them, our acceptance of them as a person.
+* Building and repairing relationships takes time and are long-term investments
+  * It takes character to be proactive, to focus on our circle of influence, to nurture growing things
+
+#### Six Major Depostits
+
+1. **Understanding the Individual:** really seeking to understand another person is probably one of the most important deposits we can make, and it is the key to every other deposit
+   * what is important to another person must be as important to us as the other person is to us
+   * by accepting the value another person places on what they have to say, we show an understanding of them that makes a great deposit
+2. **Attending to the Little Things:** little kindnesses and courtesies are so important.
+   * In relationships the little things are the big things.
+   * People are very tender, very sensitive inside, age or experience doesn't make much difference, even within the most toughened and calloused exteriors, are tender feelings and emotions of the heart
+3. **Keeping Commitments:** keeping a commitment or a promise is a major deposit; breaking one is a major withdrawal
+   * by cultivating the habit of keeping promises, we build bridges of trust that span the gaps of understanding between us and others
+4. **Clarifying Expectations:** unclear expectations in the area of *goals* undermines communication and trust
+   * the cause of almost all relationship difficulties is rooted in conflicting or ambiguous expectations around roles and goals
+   * we can be certain that unclear expectations will lead to misunderstanding, disappointment, and withdrawals of trust
+     * that's why it's so important whenever you come into a new situation to get all the expectations out on the table
+     * we create many negative situations by simply assuming that our expectations are self-evident and that they are clearly understood and shared by others
+     * when expectations are not clear and shared, people begin to become emotionally involved and simple misunderstandings become compounded, turning into personality clashes and communication breakdowns
+5. **Showing Personal Integrity:** personal integrity generates trust and is the basis of many different kinds of deposits
+   * Lack of integrity can undermine almost any other effort to create high trust accounts
+   * If we are inwardly duplicitous, we will fail to build trust with others
+   * One of the most important ways to manifest integrity is to *be loyal to those who are not present*
+   * confrontation takes considerable courage, and many people would prefer to take the course or least resistance, belittling and criticizing, betraying confidences, or participating in gossip about others behind their backs.  But in the long run, people will trust and respect us if we are honest and open and kind with them.  We care enough to confront.
+   * whether we communicate with words or behavior, if we have integrity, our intent cannot be to deceive
+     * integrity means avoiding any communication that is deceptive, full of guile, or beneath the dignity of people
+6. **Apologizing Sincerely When You Make a Withdrawal**
+   * when we make withdrawals from the emotional bank account, we need to apologize and we need to do it sincerely
+     * it takes a great deal of character strength to apologize quickly out of one's heart rather than out of pity.  a person must possess theirself and have a deep sense of security in fundamental principles and values in order to genuinely apologize.
+     * it is the weak who are cruel, gentleness can only be expected from the strong
+     * we cannot walk our way out of problems we behaved ourselves into
+     * sincere apologies make deposits, however, repeated apologies interpreted as insincere make withdrawals
+     * it is one thing to make a mistake, and quite another thing not to admit it.  people will forgive mistakes, because mistakes are usually of the mind, mistakes of judgement.  but people will not easily forgive the mistakes of the heart, the ill intention, the bad motives, the prideful justifying cover-up of the first mistake.
+       * rubber-balls vs. glass-balls
+
+#### The Laws of Love and the Laws of Life
+
+When we truly love others without condition, without strings, we help them feel secure, safe, validated, and affirmed in their essential worth, identity, and integrity.
+
+Creating unity necessary to run an effective business or a family or a marriage requires great personal strength and courage.
+
+### P Problems are PC Opportunities
+
+In an interdependent situation, *every P problem is a PC opportunity*, a chance to build the emotional bank accounts that significantly affect interdependent production.
+* when parents see their children's problems as opportunities to build the relationship instead of as negative, burdensome irratations, it totally changes the nature of the parent-child interaction.  Parents become more willing, even excited, about deeply understanding and helping their children.
+  * "Here an a great opportunity for me to really help my child and to invest in our relationship."
+    * Many interactions change from transactional to transformational, and strong bonds of love and trust are created as children sense the value parents give to their problems and to them as individuals.
