@@ -560,6 +560,98 @@ Creating unity necessary to run an effective business or a family or a marriage 
 ### P Problems are PC Opportunities
 
 In an interdependent situation, *every P problem is a PC opportunity*, a chance to build the emotional bank accounts that significantly affect interdependent production.
-* when parents see their children's problems as opportunities to build the relationship instead of as negative, burdensome irratations, it totally changes the nature of the parent-child interaction.  Parents become more willing, even excited, about deeply understanding and helping their children.
   * "Here an a great opportunity for me to really help my child and to invest in our relationship."
     * Many interactions change from transactional to transformational, and strong bonds of love and trust are created as children sense the value parents give to their problems and to them as individuals.
+
+## Habit 4: Think Win/Win
+
+Whether we are the president of a company or the janitor, the moment we step from independence into interdependence in any capacity, we step into a leadership role.  We are in a position of influencing other people.  And the habit of effective interpersonal leadership is Think Win/Win.
+
+⭐️ "Public Victory" does ont mean victory over other people.  It means success in effective interaction that brings mutually beneficial results to everyone involved.
+
+### 🙂 Win/Win
+
+If we search deeply within ourselves, beyond the scripting, beyond the learned attitudes and behaviors, the real validation of Win/Win, as well as every other correct principle, is in our own lives.
+
+* a frame of mind and heart that constantly seeks mututal benefit in all human interactions
+* sees life as a cooperative, not competitive arena
+* based on the abdundancy paradigm, there is plenty for everybody, and one person's success is not achieved at the expense or exclusion of the success of others
+
+### 🙁 Win/Lose
+
+* prone to use position, power, credentials, possessions, or personality to get their way
+* competition, not cooperation, lies at the core of the educational process
+  * cooperation is usually associated with cheating
+* defensive minds are neither creative nor cooperative
+* most of life is interdependent, not independent, reality; most results we want depend on cooperation between us and others.  the win/lose mentality is dysfunctional to that cooperation
+
+### 🙁 Lose/Win
+
+* quick to please or appease
+* seek strength via popularity or acceptance
+* little courage to express their own feelings and convictions
+* easily intimidated by the ego strength of others
+* bury alot of feelings; and unexpressed feelings never die, they're buried alive and come forth later in uglier ways
+  * psychosomatic illnesses, particularly of the respiratory, nervous, and circulatory systems often are the reincarnation of cumulative resentment, deep disappointment and disillusionment repressed by the Lose/Win mentality
+  * disproportionate rage or anger, overreaction to minor provocation, and cynicism are other embodiments of suppressed emotion
+    * people who are constantly repressing, not transcending feelings towards a higher meaning find that it affects the quality of their self-esteem and eventually the quality oftheir relationships with others
+
+### 🙁 Lose/Lose
+
+Some people become so centered on an enemy, so totally obsessed with the behavior of another person that they become blind to everything except their desire for that person to lose, even if it means losing themselves.
+
+* philosophy of war and adversarial conflict
+* highly dependent person without inner direction who is miserable and thinks everyone else should be too
+
+### 5 Dimensions of Win/Win
+
+#### 1. Character
+
+##### Integrity
+
+* clearly identified values based upon unchanging principles
+* proactively organize and execute around our values on a daily basis
+* develop self-awareness and independent will by making and keeping meaningful promises and commitments
+
+##### Maturity
+
+* the balance between courage and consideration
+  * courage may focus on getting the golden egg, consideration deals with the long-term welface of the other stakeholders
+* the ability to express one's own feelings and convictions balanced with consideration for the thoughts and feelings of others
+
+##### Abundance Mentality
+
+* there is plenty out there for everybody
+* people with the opposite mentality, scarcity mentality, have a hard time sharing recognition, credit, power, or profit - even with those who help in the production and have a hard time celebrating the success of others
+* adundance mentality flows out of a deep inner sense of personal worth and security
+* a character rich in integrity, maturity, and abundance mentality has a genuineness that goes far beyond technique in human interaction
+
+#### 2. Relationships
+
+* The stronger we are, the more genuine our character, the higher our level of proactivity, the more committed we really are to Win/Win, the more powerful our influence will be with other people.  This is the real test of interpersonal leadership.  It goes beyond *transactional* leadership into *transformational* leadership, transforming the individuals involved as well as the relationship.
+* an agreement means very little in letter without the character and relationship base to sustain it in spirit; so we need to approach Win/Win from a genuine desire to invest in the relationships that make it possible
+
+#### 3. Agreements
+
+It is much more ennobling to the human spirit to let people judge themselves than to judge them.  And in high trust culture, it's much more accurate.  In many cases people know in their hears how things are going much better than the records show.  Discernment is often far more accurate than either observation or measurement.
+
+In the Win/Win agreement, the following 5 elements are made very explicit:
+
+1. *Desired results* (not methods) identify what is to be done and when
+2. *Guidelines* specify the parameters (principles, policies, etc.) within which results are to be accomplished
+3. *Resources* identify the human, financial, technical, or organizational support available to help accomplish the results
+4. *Accountability* sets up the standards of performance and the time of evaluation
+5. *Consequences* specify the good and bad, natural and logical, what does and will happen as a result of the evaluation
+
+#### 4. Systems
+
+* we basically get what we reward
+* the spirit of Win/Win cannot survive in an environment of competition and contests
+* often the problem is in the system, not in the people; if we put good people in bad systems, we get bad results; we have to water the flowers we want to grow
+
+#### 5. Processes
+
+1. see the problem from the other point of view; seek to understand and give expression to the needs and concerns of the other party
+2. identify the key issues and concerns (not positions) involved
+3. determine what results would constitute a fully acceptable solution
+4. identify possible new options to achieve those results
