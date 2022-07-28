@@ -220,6 +220,7 @@ Self-growth is tender; it's holy ground.  There's no greater investment.  Obviou
 >
 -[Thomas Paine](https://en.wikipedia.org/wiki/Thomas_Paine)
 
+# Private Victory
 
 ## Habit 1: Be Proactive
 
@@ -562,6 +563,8 @@ Creating unity necessary to run an effective business or a family or a marriage 
 In an interdependent situation, *every P problem is a PC opportunity*, a chance to build the emotional bank accounts that significantly affect interdependent production.
   * "Here an a great opportunity for me to really help my child and to invest in our relationship."
     * Many interactions change from transactional to transformational, and strong bonds of love and trust are created as children sense the value parents give to their problems and to them as individuals.
+
+# Public Victory
 
 ## Habit 4: Think Win/Win
 
