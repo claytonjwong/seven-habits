@@ -567,7 +567,7 @@ In an interdependent situation, *every P problem is a PC opportunity*, a chance 
 
 Whether we are the president of a company or the janitor, the moment we step from independence into interdependence in any capacity, we step into a leadership role.  We are in a position of influencing other people.  And the habit of effective interpersonal leadership is Think Win/Win.
 
-⭐️ "Public Victory" does ont mean victory over other people.  It means success in effective interaction that brings mutually beneficial results to everyone involved.
+⭐️ "Public Victory" does not mean victory over other people.  It means success in effective interaction that brings mutually beneficial results to everyone involved.
 
 ### 🙂 Win/Win
 
@@ -594,7 +594,7 @@ If we search deeply within ourselves, beyond the scripting, beyond the learned a
 * bury alot of feelings; and unexpressed feelings never die, they're buried alive and come forth later in uglier ways
   * psychosomatic illnesses, particularly of the respiratory, nervous, and circulatory systems often are the reincarnation of cumulative resentment, deep disappointment and disillusionment repressed by the Lose/Win mentality
   * disproportionate rage or anger, overreaction to minor provocation, and cynicism are other embodiments of suppressed emotion
-    * people who are constantly repressing, not transcending feelings towards a higher meaning find that it affects the quality of their self-esteem and eventually the quality oftheir relationships with others
+    * people who are constantly repressing, not transcending feelings towards a higher meaning find that it affects the quality of their self-esteem and eventually the quality of their relationships with others
 
 ### 🙁 Lose/Lose
 
@@ -616,7 +616,7 @@ Some people become so centered on an enemy, so totally obsessed with the behavio
 ##### Maturity
 
 * the balance between courage and consideration
-  * courage may focus on getting the golden egg, consideration deals with the long-term welface of the other stakeholders
+  * courage may focus on getting the golden egg, consideration deals with the long-term welfare of the other stakeholders
 * the ability to express one's own feelings and convictions balanced with consideration for the thoughts and feelings of others
 
 ##### Abundance Mentality
@@ -633,7 +633,7 @@ Some people become so centered on an enemy, so totally obsessed with the behavio
 
 #### 3. Agreements
 
-It is much more ennobling to the human spirit to let people judge themselves than to judge them.  And in high trust culture, it's much more accurate.  In many cases people know in their hears how things are going much better than the records show.  Discernment is often far more accurate than either observation or measurement.
+It is much more ennobling to the human spirit to let people judge themselves than to judge them.  And in high trust culture, it's much more accurate.  In many cases people know in their hearts how things are going much better than the records show.  Discernment is often far more accurate than either observation or measurement.
 
 In the Win/Win agreement, the following 5 elements are made very explicit:
 
