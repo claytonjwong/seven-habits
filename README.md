@@ -694,3 +694,48 @@ In the Win/Win agreement, the following 5 elements are made very explicit:
   * When we really, deeply understand each other, we open the door to creative solutions and third alternatives.  Our differences are no longer stumbling blocks to communication and progress.  Instead, they become the stepping stones of synergy.
   * Watch what happens to ourselves, the more deeply we understand other people, the more we will appreciate them, the more reverent we will feel about them.  To touch the soul of another human being is to walk on holy ground
     * Don't push; be patient; be respectful.  People don't have to open up verbally before we can empathsize.
+
+## Habit 6: Synergize
+
+> I take as my guide the hope of a saint:
+> in crucial things, unity
+> in important things, diversity
+> in all things, generosity.
+>
+-[Inaugural Address of President George Bush](https://en.wikipedia.org/wiki/George_H._W._Bush)
+
+⭐️ **Synergy** means the whole is greater than the sum of its parts.
+* The essence of synergy is to value differences, to respect them, to build on strengths, to compensate for weaknesses
+* It takes an enormous amount of internal security to begin with the spirit of adventure, the spirit of discovery, the spirit of creativity.  Without doubt, we have to leave the comfort zone of base camp and confront an entirely new and unknown wilderness.  We become a trailblazer, a pathfinder.  We open new possibilities, new territories, new continents, so that others can follow.
+* Most all creative endeavors are somewhat unpredictable.  They often seem ambiguous, hit-or-miss, and trial-and-error.  We must have a high tolerance for ambiguity and retrieve our security from integrity to principles and innner values; this decouples our "need" for structure, certainty, and predictability in our VUCA world (volatile, uncertain, complex, and ambiguous)
+* The more authentic we become, the more genuine in our expression, particularly regarding personal experiences and even self-doubts, the more people can relate to our expression and the safer it makes them feel to express themselves.
+
+> If a person of your intelligence and competence and commitment disagrees with me, then there must be something to your disagreement that I don't understand, and I need to understand it.  You have a perspective, a frame of reference I need to look at.
+
+### Negative Synergy
+
+**⭐️ Seeking the third alternative is a major paradigm shift from the dichotomous, either/or mentality.**
+* the problem is that highly dependent people are trying to succeed in an interdependent reality
+  * they don't really want to listen
+  * they want to manipulate
+    * synergy can't thrive in that environment
+
+🙂 One of the very practical results of being principle-centered is that it makes us whole, truly integrated.  People who are scripted deeply in logical, verbal, left-brain thinking will discover how totally inadequate that thinking is in solving problems which require a great deal of creativity.  They become aware and begin to open up a new script inside their right brain.  It's not that the right brain wasn't there; it just lay dormant.  The muscles had not been developed, or perhaps they had atrophied after early childhood because of the heavy left-brain emphasis of formal education or social scripting.
+* When a person has access to both the intuitive, creative, and visual right brain, and the analytical, logical, verbal left brain, then the whole brain is working.  In other words, there is a psychic synergy taking place in our own head.  And this tool is best suited to the reality of what life is, because life is not just logical, it is also emotional.
+
+### Valuing Differences
+
+**⭐️ Life is not always a dichotomous either/or; there are almost always third alternatives**
+
+Valuing differences is the essence of synergy, the mental, emotional, psychological differences between people.  And the key to valuing those differences is to realize that all people see the world, not as it is, but as they are.
+* The person who is truly effective has the humility and reverence to recognize their own perceptual limitations and to appreciate the rich resources available through interaction with the hearts and minds of other human beings.  That person values difference because those differences add to their knowledge, to their understanding of reality.  When we're left to our own experiences, we constantly suffer from a shortage of data.
+  * Is it logical that two people can disagree and that both can be right?  It's not logical: it's *psychological*.  We interpret the data points differently because we've been conditioned to interpret them differently.
+    * I want to communicate with you because you see it differently; I value that difference.  By doing that, I not only increase my own awareness; I also affirm you.  I give you pyschological air.
+
+### All Nature is Synergistic
+
+* Synergy works; it's a correct principle.  It is the crowning achievement of all the previous habits.  It is effectiveness in an interdependent reality - it is teamwork, team building, the development of unity and creativity with other human beings.
+* Our own internal synergy is completely within the Circle of Influence.  We can respect both sides of our own nature - the analytical side and the creative side.  We can value the difference between them and use that difference to catalyze creativity.
+* We can exercise the courage in interdependent situations to be open, to express our ideas, our feelings, and our experiences in a way which will encourage other people to be open also.
+* We can value the difference in other people.  When someone disagrees with us, we can say, "Good! You see it differently."  We don't have to agree with them; we can simply affirm them, and we can seek to understand.
+* When we only see two alternatives - ours and the "wrong" one - we can look for a synergistic third alternative.  There's almost always a thirld alternative, and if we work with a Win/Win philosophy and really seek to understand, we usually can find a solution which will be better for everyone concerned.
