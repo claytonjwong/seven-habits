@@ -661,7 +661,7 @@ In the Win/Win agreement, the following 5 elements are made very explicit:
 🙁 We have such a tendency to rush in, to fix things up with good advice.  But we often fail to take the time to diagnose, to really, deeply understand the problem first.
 
 **⭐️ This principle is the key to effective interpersonal communication**
-* Reading and writing are both forms of communication.  So are speaking and listening.  Inf fact, these are the four basic types of communication.  And think of all the hours we spend doing at least one of these things.  The ability to do them well is absolutely critical to our effectiveness.
+* Reading and writing are both forms of communication.  So are speaking and listening.  In fact, these are the four basic types of communication.  And think of all the hours we spend doing at least one of these things.  The ability to do them well is absolutely critical to our effectiveness.
   * Communication is the most important skill in life.  We spend most of our waking hours communicating.  But consider this: we've spend years learning how to read and write, years learning how to speak.  But what about listening?  What training or education have we had which enables us to listen so that we really, deeply understand another human being from that individual's own frame of reference?
     * If you want to interact effectively with me, you first need to understand me, otherwise I don't feel safe enough to open myself up to you
     * The real key to your influence with me is your example, your actual conduct.  Your example flows naturally out of your character, or the kind of person you truly are
@@ -688,6 +688,6 @@ In the Win/Win agreement, the following 5 elements are made very explicit:
 * The time we invest to deeply understand the people we love brings tremendous dividends in open communication.
   * Make the human element as important as the financial or technical element
   * Before problems come up, before we try to evaluate and prescribe, before we try to present our own ideas, seek to understand.  It's a powerful habit of effective interdependence
-  * When we really, deeply understand each other, we open the door to creative solutions and third alternatives.  Our differences are no longer stumbling blocks to communication and progress.  Instead, they become the stepping stones fo synergy.
-  * What what happens to ourselves, the more deeply we understand other people, the more we will appreciate them, the more reverent we will feel about them.  To touch the soul of another human being is to walk on holy ground
+  * When we really, deeply understand each other, we open the door to creative solutions and third alternatives.  Our differences are no longer stumbling blocks to communication and progress.  Instead, they become the stepping stones of synergy.
+  * Watch what happens to ourselves, the more deeply we understand other people, the more we will appreciate them, the more reverent we will feel about them.  To touch the soul of another human being is to walk on holy ground
     * Don't push; be patient; be respectful.  People don't have to open up verbally before we can empathsize.
