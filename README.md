@@ -655,3 +655,39 @@ In the Win/Win agreement, the following 5 elements are made very explicit:
 2. identify the key issues and concerns (not positions) involved
 3. determine what results would constitute a fully acceptable solution
 4. identify possible new options to achieve those results
+
+## Habit 5: Seek First To Understand Then To Be Understood
+
+🙁 We have such a tendency to rush in, to fix things up with good advice.  But we often fail to take the time to diagnose, to really, deeply understand the problem first.
+
+**⭐️ This principle is the key to effective interpersonal communication**
+* Reading and writing are both forms of communication.  So are speaking and listening.  Inf fact, these are the four basic types of communication.  And think of all the hours we spend doing at least one of these things.  The ability to do them well is absolutely critical to our effectiveness.
+  * Communication is the most important skill in life.  We spend most of our waking hours communicating.  But consider this: we've spend years learning how to read and write, years learning how to speak.  But what about listening?  What training or education have we had which enables us to listen so that we really, deeply understand another human being from that individual's own frame of reference?
+    * If you want to interact effectively with me, you first need to understand me, otherwise I don't feel safe enough to open myself up to you
+    * The real key to your influence with me is your example, your actual conduct.  Your example flows naturally out of your character, or the kind of person you truly are
+    * Your character is constantly radiating, communicating.  From it, in the long run, I come to instinctively trust or distrust you and your efforts with me.
+    * Unless you're influenced by my uniqueness, I'm not going to be influenced by your advice.
+    * You have to build the skills of empathic listening on a base of character that inspires openness and trust.  And you have to build the Emotional Bank Accounts that create a commerce between hearts
+
+### Empathic Listening
+
+⭐️ "Seek first to understand" involves a very deep shift in paradigm.  We typically seek first to be understood.  Most people do not listen with the intent to understand; they listen with the intent to reply.  They're either speaking or preparing to speak.  They're filtering everything through their own paradigms, reading their autobiography into other people's lives.  They're constantly projecting their own home movies onto other people's behavior.  They prescribe their own glasses for everyone whom they interact.  If they have a problem with someone, their attitude is, "That person just doesn't understand."
+* The essence of empathic listening is not that we agree with someone; it's that we fully, deeply, understand that person, emotionally as well as intellectually.
+* In empathic listening, we listen with our ears, but we also, and more importantly, listen with our eyes and our hearts.  We listen for feeling, for meaning.  We listen for behavior.  We use our right brain as well as our left.  We sense, intuit, and feel.
+  * We're dealing with the reality inside another person's head and heart.  We're focused on receiving that deep communication of another human soul
+  * Emphatic listening is a tremendous deposit in the Emotional Bank Account.  It's deeply therapeutic and healing because it gives a person "psychological air."
+    * Satisfied needs do not motivate, it's only the unsatisfied need that motivates; next to physical survival, the greatest need of a human being is psychological survival, to be understand, affirmed, validated, and appreciated
+    * When we listen with empathy to another person, we give that person psychological air.  And after that vital need is met, we can then focus on influencing or problem solving.  This need for psychological air impacts communication in every area of life.
+* Seeking first to understand, diagnosing before we prescribe, is hard.  It's so much easier in the short run to hand someone a pair of glasses that have fit us so well these many years.
+  * Empathic listening is also risky.  It takes a great deal of security to go into a deep listening experience because we open ourselves up to be influenced.  We become vulnerable.  It's a paradox, in a sense, because in order to have influence, we have to be influenced.  That means we have to really understand.
+    * This is why Habits 1, 2, 3 are so foundational.  They give us the changeless inner core, the principle center, from which we can handle the more outward vulnerability with peace and strength.
+  * Empathic listening takes time, but it doesn't take anywhere near as much time as it takes to back up and correct misunderstandings when we're already miles down the road, to redo, to live with unexpressed and unsolved problems, to deal with the results of not giving people psychological air.
+    * A discerning empathic listener can read what's happening down deep fast, and can show such acceptance, such understanding, that others feel safe to open up layer after layer until they get to that soft inner core where the problem really lies.
+    * People want to be understood.  And whatever investment of time it takes to do that will bring much greater returns of time as we work from an accurate understanding of the problems and issues and from the high Emotional Bank Account that results when a person feels deeply understood.
+      * Seeking to understand requires consideration; seeking to be understood takes courage
+* The time we invest to deeply understand the people we love brings tremendous dividends in open communication.
+  * Make the human element as important as the financial or technical element
+  * Before problems come up, before we try to evaluate and prescribe, before we try to present our own ideas, seek to understand.  It's a powerful habit of effective interdependence
+  * When we really, deeply understand each other, we open the door to creative solutions and third alternatives.  Our differences are no longer stumbling blocks to communication and progress.  Instead, they become the stepping stones fo synergy.
+  * What what happens to ourselves, the more deeply we understand other people, the more we will appreciate them, the more reverent we will feel about them.  To touch the soul of another human being is to walk on holy ground
+    * Don't push; be patient; be respectful.  People don't have to open up verbally before we can empathsize.
