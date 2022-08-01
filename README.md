@@ -739,3 +739,53 @@ Valuing differences is the essence of synergy, the mental, emotional, psychologi
 * We can exercise the courage in interdependent situations to be open, to express our ideas, our feelings, and our experiences in a way which will encourage other people to be open also.
 * We can value the difference in other people.  When someone disagrees with us, we can say, "Good! You see it differently."  We don't have to agree with them; we can simply affirm them, and we can seek to understand.
 * When we only see two alternatives - ours and the "wrong" one - we can look for a synergistic third alternative.  There's almost always a thirld alternative, and if we work with a Win/Win philosophy and really seek to understand, we usually can find a solution which will be better for everyone concerned.
+
+## Habit 7: Sharpen the Saw - Principles of Balanced Self-Renewal
+
+We must be proactive.  Taking time to sharpen the saw is a definite Quadrant II activity.  Personal PC must be pressed upon until it becomes second nature, until it becomes a kind of healthy addiction.  Because it's at the center of our Circle of Influence, no one else can do it for us.  We must do it ourselves.
+
+This is the single most powerful investment we can ever make in life - investment in ourselves, in the only instrument we have with which to deal with life and to contribute.  We are the instruments of our own performance, and to be effective, we need to recognize the importance of taking time regularly to sharpen the saw in all four ways.
+
+### Four Dimensions of Renewal
+
+1. **Physical:** exercise, nutrition, stress management
+1. **Spiritual:** value clarification & commitment, study & meditation
+1. **Mental:** reading, visualizing, planning, writing
+1. **Social/Emotional:** service, empathy, synergy, intrinsic security
+
+#### The Physical Dimension
+
+⭐️ Probably the greatest benefit we will experience from exercising will be the development of our Habit 1 muscles of proactivity.  As we act based on the value of physical well-being instead of reacting to all the forces that keep us from exercising, our paradigm of ourself, our self-esteem, our self-confidence, and our integrity will be profoundly affected.
+
+* Caring effectively for our physical body - eating the right kinds of foods, getting sufficient rest and relaxation, and exercising on a regular basis.
+* We have "emotional muscles" to be "exercised" as well.  When we exercise our patience beyond our past limits, the emotional fiber is broken, nature overcompensates, and the next time the fiber is stronger.
+
+#### The Spiritual Dimension
+
+⭐️ The greatest battles of life are fought out daily in the silent chambers of the soul.  If we win battles there, if we settle the issues that inwardly conflict, we feel a sense of peace, a sense of knowing what we're about.  And we'll find that the public victories - where we tend to think cooperatively, to promote the welfare and good of other people, and to be genuinely happy for other people's successes - will follow naturally.
+
+🙂 Nature bequeaths its own blessing on those who immerse themselves in it.  When we're able to leave the noise and the discord of the city and give ourself up to the harmony and rhythm of nature, we come back renewed.
+
+#### The Mental Dimension
+
+There's no better way to inform and expand our mind on a regular basis than to get into the habit of reading good literature.  The person who doesn't read is no better off than the person who can't read.
+
+**⭐️ Character cannot be made except by a steady, long continued process**
+
+It is said that wars are won in the general's tent.  Taking one hour each day to sharpen the saw in the first three dimensions - the physical, the spiritual, and the mental - is a practice which will affect every decision, every relationship.  It will greatly improve the quality, the effectiveness, of every other hour of the day, including the depth and restfulness of our sleep.  It will build the long-term physical, spiritual, and mental strength to enable us to handle difficult challengnes in life.
+
+#### The Social/Emotional Dimension
+
+> I am of the opinion that my life belongs to the whole community and as long as I live it is my privledge to do for it whatever I can.  I want to be thoroughly used up when I die.  For the harder I work the more I live.  I rejoice in life for its own sake.  Life is no brief candle to me.  It's a sort of splendid torch which I've got to hold up for the moment and I want to make it burn as brightly as possible before handing it on to future generations.
+>
+-[George Bernard Shaw](https://en.wikipedia.org/wiki/George_Bernard_Shaw)
+
+**⭐️ Service is the rent we pay for the privledge of living on this Earth**
+
+A long, healthy, and happy life is the result of making contributions, of having meaningful projets that are personally exciting and contribute to and bless the lives of others.
+
+* With abundance mentality, giving a positive reflection to others in no way diminishes us
+* What do we relect to others about themselves?
+  * Learner disability may be the result of teacher inflexibility
+    * The more we can see people in terms of their unseen potential, the more we can use our imagination rather than our memory.
+    * Treat a man as he is and he will remain as he is.  Treat a man as he can and should be and he will become as he can and should be.
