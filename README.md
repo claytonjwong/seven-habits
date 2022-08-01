@@ -326,7 +326,7 @@ A personal mission statement based on correct principles becomes a standard of p
 
 🙂 With a mission statement, we can flow with changes.  We don't need prejudgements or prejudices.  We don't need to figure out everything else in life, to stereotype and categorize everything and everybody in order to accomodate reality.
 
-🙁 Our personal environment is also changing at an ever-increasing pace.  Such rapid change burns out a large number of people who feel they can hardly handle it, can hardly cope with life.  They become reactive and essentially give up, hoping that things that happens to them will be good.
+🙁 Our personal environment is also changing at an ever-increasing pace.  Such rapid change burns out a large number of people who feel they can hardly handle it, can hardly cope with life.  They become reactive and essentially give up, hoping that things that happen to them will be good.
 
 **⭐️ Many so-called mental and emotional illnesses are really symptoms of an underlying sense of meaninglessness or emptiness**
 
@@ -706,7 +706,7 @@ In the Win/Win agreement, the following 5 elements are made very explicit:
 
 ⭐️ **Synergy** means the whole is greater than the sum of its parts.
 * The essence of synergy is to value differences, to respect them, to build on strengths, to compensate for weaknesses
-* It takes an enormous amount of internal security to begin with the spirit of adventure, the spirit of discovery, the spirit of creativity.  Without doubt, we have to leave the comfort zone of base camp and confront an entirely new and unknown wilderness.  We become a trailblazer, a pathfinder.  We open new possibilities, new territories, new continents, so that others can follow.
+* It takes an enormous amount of internal security to begin with the spirit of adventure, the spirit of discovery, the spirit of creativity.  Without a doubt, we have to leave the comfort zone of base camp and confront an entirely new and unknown wilderness.  We become a trailblazer, a pathfinder.  We open new possibilities, new territories, new continents, so that others can follow.
 * Most all creative endeavors are somewhat unpredictable.  They often seem ambiguous, hit-or-miss, and trial-and-error.  We must have a high tolerance for ambiguity and retrieve our security from integrity to principles and innner values; this decouples our "need" for structure, certainty, and predictability in our VUCA world (volatile, uncertain, complex, and ambiguous)
 * The more authentic we become, the more genuine in our expression, particularly regarding personal experiences and even self-doubts, the more people can relate to our expression and the safer it makes them feel to express themselves.
 
@@ -735,7 +735,7 @@ Valuing differences is the essence of synergy, the mental, emotional, psychologi
 ### All Nature is Synergistic
 
 * Synergy works; it's a correct principle.  It is the crowning achievement of all the previous habits.  It is effectiveness in an interdependent reality - it is teamwork, team building, the development of unity and creativity with other human beings.
-* Our own internal synergy is completely within the Circle of Influence.  We can respect both sides of our own nature - the analytical side and the creative side.  We can value the difference between them and use that difference to catalyze creativity.
+* Our own internal synergy is completely within our Circle of Influence.  We can respect both sides of our own nature - the analytical side and the creative side.  We can value the difference between them and use that difference to catalyze creativity.
 * We can exercise the courage in interdependent situations to be open, to express our ideas, our feelings, and our experiences in a way which will encourage other people to be open also.
 * We can value the difference in other people.  When someone disagrees with us, we can say, "Good! You see it differently."  We don't have to agree with them; we can simply affirm them, and we can seek to understand.
 * When we only see two alternatives - ours and the "wrong" one - we can look for a synergistic third alternative.  There's almost always a thirld alternative, and if we work with a Win/Win philosophy and really seek to understand, we usually can find a solution which will be better for everyone concerned.
