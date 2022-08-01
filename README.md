@@ -772,7 +772,7 @@ There's no better way to inform and expand our mind on a regular basis than to g
 
 **⭐️ Character cannot be made except by a steady, long continued process**
 
-It is said that wars are won in the general's tent.  Taking one hour each day to sharpen the saw in the first three dimensions - the physical, the spiritual, and the mental - is a practice which will affect every decision, every relationship.  It will greatly improve the quality, the effectiveness, of every other hour of the day, including the depth and restfulness of our sleep.  It will build the long-term physical, spiritual, and mental strength to enable us to handle difficult challengnes in life.
+It is said that wars are won in the general's tent.  Taking one hour each day to sharpen the saw in the first three dimensions - the physical, the spiritual, and the mental - is a practice which will affect every decision, every relationship.  It will greatly improve the quality, the effectiveness, of every other hour of the day, including the depth and restfulness of our sleep.  It will build the long-term physical, spiritual, and mental strength to enable us to handle difficult challenges in life.
 
 #### The Social/Emotional Dimension
 
@@ -782,10 +782,14 @@ It is said that wars are won in the general's tent.  Taking one hour each day to
 
 **⭐️ Service is the rent we pay for the privledge of living on this Earth**
 
-A long, healthy, and happy life is the result of making contributions, of having meaningful projets that are personally exciting and contribute to and bless the lives of others.
+A long, healthy, and happy life is the result of making contributions, of having meaningful projects that are personally exciting and contribute to and bless the lives of others.
 
 * With abundance mentality, giving a positive reflection to others in no way diminishes us
 * What do we relect to others about themselves?
   * Learner disability may be the result of teacher inflexibility
     * The more we can see people in terms of their unseen potential, the more we can use our imagination rather than our memory.
     * Treat a man as he is and he will remain as he is.  Treat a man as he can and should be and he will become as he can and should be.
+
+Once we are self-aware, we must choose purposes and principles to live by; otherwise the vacuum will be filled, and we will lose our self-awareness and become like groveling animals who live primarily for survival and propagation.  People who exist on that level aren't living; they are "being lived."  They are reacting, unaware of their unique endowments that lie dormant and undeveloped within.  And there is no shortcut in developing them.  The law of the harvest governs; we will always reap what we sow - no more, no less.  The law of justice is immutable, and the closer we align ourselves with correct principles, the better our judgement will be about how the world operates and the more accurate our paradigms (our maps of the territory) will be.
+
+**THE BUCK STOPS HERE.  I WILL PUT IN THE WORK.  OVER AND OVER AGAIN.**
